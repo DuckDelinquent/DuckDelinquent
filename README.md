@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @DuckDelinquent
+- 👀 I’m interested in your mom
+- 🌱 I’m currently learning C++ C# and Python
+- 📫 How to reach me Discord Nvm#1871
